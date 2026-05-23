@@ -4,6 +4,7 @@
 
 <p align="center">
 <sub>
-<a href="https://koifishuu.atabook.org/">sign my ata !!</a>
+<a href="https://koifishuu.atabook.org/">sign my ata !!</a>⠀
+<a href=" https://doctor-sawyer.straw.page/">send gimmicks</a>
 </sub>
 </p>
